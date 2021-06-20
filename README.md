@@ -1,3 +1,3 @@
 ### Dae🥶
 
-[![Telegram Badge](http://t.me//SHATEI_1)]
+[![Chat On Telegram](http://t.me//SHATEI_1)]
